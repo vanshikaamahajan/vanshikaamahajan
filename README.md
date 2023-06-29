@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **ML**
 
-- 📫 How to reach me **vanshikamahajan1110@gmail.com**
+- 📫 How to reach me **vanshikamahajan1110@gmail.com/vmahajan1_be21@thapar.edu**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
